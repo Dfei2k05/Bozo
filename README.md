@@ -1,4 +1,4 @@
-I made this cryptocurrency because I was bored
+I made this crypto because I was bored.
 Bozo is named Bozo after all my friends who are all bozos
 
 This cryptocurrency has no value unless people give it value.
